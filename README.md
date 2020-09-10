@@ -1,1 +1,0 @@
-# wahlmandat.github.io
